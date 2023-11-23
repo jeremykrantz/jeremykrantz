@@ -7,6 +7,6 @@
 - 💬 Learn about my work experience over at https://www.linkedin.com/in/jeremykbkrantz/
 - 📫 How to reach me: jeremy@paidsearch.org
 - 😄 Pronouns: he/him/they
-- ⚡ Fun fact: I love playing pickleball and I'm a board member on two boards
+- ⚡ Fun fact: I love playing pickleball and all things trivia (I particpate in Learned League)
 
 *Last updated 11/23/2023*
