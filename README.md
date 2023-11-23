@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on being the best digital marketer I can be
 - 🌱 I’m currently learning how to master all things Google Display Video 360
 - 👯 I’m looking to collaborate on writing articles and creating content about all things digital marketing
-- 🤔 I’m looking for help understand what GitHub is and what it does
+- 🤔 I’m looking for help understanding what GitHub is and what it does
 - 💬 Learn about my work experience over at https://www.linkedin.com/in/jeremykbkrantz/
 - 📫 How to reach me: jeremy@paidsearch.org
 - 😄 Pronouns: he/him/they
